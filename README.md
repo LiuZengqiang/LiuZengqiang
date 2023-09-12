@@ -1,1 +1,1 @@
-Make computer graphics greate again.
+Make computer graphics great again.
