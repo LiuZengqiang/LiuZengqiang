@@ -1,1 +1,1 @@
-Hello.
+Make computer graphics greate again.
