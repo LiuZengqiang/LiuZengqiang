@@ -1,1 +1,1 @@
-Do you want to learn rust, too?
+We are drifting away from each other.
