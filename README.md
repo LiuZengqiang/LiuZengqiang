@@ -1,1 +1,1 @@
-We are drifting away from each other.
+We cannot predict the value of a moment until it becomes a memory.
